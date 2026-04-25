@@ -1,8 +1,8 @@
-# Arrangementer 2025
+# Arrangementer 2026
 
 Datoerne er vejledende, men vi efterstræber at ramme dem så præcist som muligt.
 
-![Tidslinje over GamMas arrangementer i 2025 og starten af 2026](../../mails/img/other/Arrangementer_Tidslinje.png)
+![Tidslinje over GamMas arrangementer i 2026 og starten af 2027](../../mails/img/other/Arrangementer_Tidslinje.png)
 
 ## 13. maj - Bastard
 
@@ -64,13 +64,13 @@ En faglig aften, men denne gang med oplæg fra professorer og god videnskab. Mer
 
 Vi gentager succesen. Mere jul følger.
 
-## Januar 2026 - Nytårscafé
+## Januar 2027 - Nytårscafé
 
 **Ansvarlige:** Alex Jørgensen og Anne Gregersen
 
 Kickstart det nye år med os. Mere information følger.
 
-## 26. februar 2026 - Generalforsamling
+## 26. februar 2027 - Generalforsamling
 
 **Ansvarlig:** Bestyrelsen
 
